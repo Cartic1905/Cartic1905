@@ -8,4 +8,4 @@
 Cartic1905/Cartic1905 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-  RE RE RE RA RA RA GASSARAY GASSARAY CİMBOMBOM
+ 🦁  RE RE RE RA RA RA GASSARAY GASSARAY CİMBOMBOM 🦁 
